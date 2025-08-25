@@ -174,29 +174,29 @@ Namahshivaya che namahshivaya
 
 ## Ghalin Lotangan
 
-Ghalin lotangan vandin charan
+Ghalin lotangan vandin charan  
 Dolyani pahin rup tujhe  
-Deve alingan anande pujin
+Deve alingan anande pujin  
 Bhave ovaleen mhane nama  
 
-Twamev mata cha Pita twamev
-Twamev bandhusch sakha twamev  
-Twamev Vidhya dravinam twamev
-Twamev sarwam mam dev dev
+Twamev mata cha Pita twamev  
+Twamev bandhusch sakha twamev   
+Twamev Vidhya dravinam twamev  
+Twamev sarwam mam dev dev  
 
-Kayena vacha manasendriyenva
+Kayena vacha manasendriyenva  
 Buddhayatmna va prakrutiswabhavat  
-Karomi yadhyat sakalam parasmai
-Narayanayeti samarpayami
+Karomi yadhyat sakalam parasmai  
+Narayanayeti samarpayami  
 
-Achyutam keshavam ramnarayanam
-krushanadamodaram vasudevam bhaje
-Shridharam Madhavam gopikavallabham
-Janaki nayakam ramchandram bhaje  
+Achyutam keshavam ramnarayanam  
+krushanadamodaram vasudevam bhaje  
+Shridharam Madhavam gopikavallabham  
+Janaki nayakam ramchandram bhaje   
 
-Hare ram hare ram ram ram hare hare
-Hare krishna hare krishna Krishna Krishna hare hare 
-Hare ram hare ram ram ram hare hare
+Hare ram hare ram ram ram hare hare  
 Hare krishna hare krishna Krishna Krishna hare hare  
-Hare ram hare ram ram ram hare hare
-Hare krishna hare krishna Krishna Krishna hare hare
+Hare ram hare ram ram ram hare hare  
+Hare krishna hare krishna Krishna Krishna hare hare  
+Hare ram hare ram ram ram hare hare  
+Hare krishna hare krishna Krishna Krishna hare hare  
