@@ -191,8 +191,12 @@ Narayanayeti samarpayami
 
 Achyutam keshavam ramnarayanam
 krushanadamodaram vasudevam bhaje
-Shridharam Madhavam gopikavallabham || Janaki nayakam ramchandram bhaje || 4 ||  
+Shridharam Madhavam gopikavallabham
+Janaki nayakam ramchandram bhaje  
 
-Hare ram hare ram ram ram hare hare || Hare krishna hare krishna Krishna Krishna hare hare ||  
-Hare ram hare ram ram ram hare hare || Hare krishna hare krishna Krishna Krishna hare hare ||  
-Hare ram hare ram ram ram hare hare || Hare krishna hare krishna Krishna Krishna hare hare ||  
+Hare ram hare ram ram ram hare hare
+Hare krishna hare krishna Krishna Krishna hare hare 
+Hare ram hare ram ram ram hare hare
+Hare krishna hare krishna Krishna Krishna hare hare  
+Hare ram hare ram ram ram hare hare
+Hare krishna hare krishna Krishna Krishna hare hare
