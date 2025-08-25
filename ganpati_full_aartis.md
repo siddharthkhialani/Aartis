@@ -116,44 +116,44 @@ Jai Devi Jai Devi
 
 ## Shri Shankarachi Aarti
 
-Lavthavati vikrala brahmandi mala ||  
-Vishe kantha kala trinetri jwala ||  
-Lavanyasundar mastaki bala ||  
-Tethuniya jal nirmal vahe zhulzhula ||1||  
+Lavthavati vikrala brahmandi mala  
+Vishe kantha kala trinetri jwala  
+Lavanyasundar mastaki bala
+Tethuniya jal nirmal vahe zhulzhula  
 
 Jai dev jai dev  
 
-Jai dev jai dev jai shrishankara ho swamishankara ||  
+Jai dev jai dev jai shrishankara ho swamishankara  
 Arti ovaloo tuj karpurgaura Jai dev Jai dev  
 
-Karpurgaura Bhola nayani vishala ||  
-Ardhangi parvati sumanachya mala ||  
-Vibhutiche udhalana shitikanth nila ||  
-Aisa shankar shobhe umavelana ||2||  
+Karpurgaura Bhola nayani vishala  
+Ardhangi parvati sumanachya mala 
+Vibhutiche udhalana shitikanth nila 
+Aisa shankar shobhe umavelana 
 
 Jai dev jai dev  
 
-Jai dev jai dev jai shrishankara, ho swamishankara||  
+Jai dev jai dev jai shrishankara, ho swamishankara  
 Arti ovaloo tuj karpurgaura Jai dev Jai dev  
 
-Devi daitya sagarmanthan pai kele ||  
-Tyamaji avachit halahal sapadale ||  
-Te tva asurpane prashan kele ||  
-Neelkantha nam prasiddha jhale || || 3 ||  
+Devi daitya sagarmanthan pai kele  
+Tyamaji avachit halahal sapadale  
+Te tva asurpane prashan kele  
+Neelkantha nam prasiddha jhale 
 
 Jai dev jai dev  
 
-Jai dev jai dev jai shrishankara, ho swamishankara||  
+Jai dev jai dev jai shrishankara, ho swamishankara  
 Arti ovaloo tuj karpurgaura Jai dev Jai dev  
 
-Vyaghrambara phanivardhar sundar madnari ||  
-Panchanan Manmohan Munijansukhkari ||  
-Shatkotiche beej vache uchchari ||  
-Raghukultilak ramdasa antaree ||4||  
+Vyaghrambara phanivardhar sundar madnari
+Panchanan Manmohan Munijansukhkari  
+Shatkotiche beej vache uchchari 
+Raghukultilak ramdasa antaree  
 
 Jai dev jai dev  
 
-Jai dev jai dev jai shrishankara, ho swamishankara||  
+Jai dev jai dev jai shrishankara, ho swamishankara
 Arti ovaloo tuj karpurgaura Jai dev Jai dev  
 
 ---
@@ -161,9 +161,9 @@ Arti ovaloo tuj karpurgaura Jai dev Jai dev
 ## Karpura Gauram Karunavataram
 
 Karpura Gauram Karunavataram  
-Samsarasaram Bhujagendraharam |  
+Samsarasaram Bhujagendraharam  
 Sadavasantam Hridayaravinde  
-Bhavam Bhavanisahitam Namami ||  
+Bhavam Bhavanisahitam Namami  
 
 Mandarmala Kalitalkale  
 Kapalamala Kitsundaraya  
@@ -174,16 +174,23 @@ Namahshivaya che namahshivaya
 
 ## Ghalin Lotangan
 
-Ghalin lotangan vandin charan || Dolyani pahin rup tujhe ||  
-Deve alingan anande pujin || Bhave ovaleen mhane nama || 1 ||  
+Ghalin lotangan vandin charan
+Dolyani pahin rup tujhe  
+Deve alingan anande pujin
+Bhave ovaleen mhane nama  
 
-Twamev mata cha Pita twamev || Twamev bandhusch sakha twamev ||  
-Twamev Vidhya dravinam twamev || Twamev sarwam mam dev dev || 2 ||  
+Twamev mata cha Pita twamev
+Twamev bandhusch sakha twamev  
+Twamev Vidhya dravinam twamev
+Twamev sarwam mam dev dev
 
-Kayena vacha manasendriyenva || Buddhayatmna va prakrutiswabhavat ||  
-Karomi yadhyat sakalam parasmai || Narayanayeti samarpayami || 3 ||  
+Kayena vacha manasendriyenva
+Buddhayatmna va prakrutiswabhavat  
+Karomi yadhyat sakalam parasmai
+Narayanayeti samarpayami
 
-Achyutam keshavam ramnarayanam || krushanadamodaram vasudevam bhaje ||  
+Achyutam keshavam ramnarayanam
+krushanadamodaram vasudevam bhaje
 Shridharam Madhavam gopikavallabham || Janaki nayakam ramchandram bhaje || 4 ||  
 
 Hare ram hare ram ram ram hare hare || Hare krishna hare krishna Krishna Krishna hare hare ||  
